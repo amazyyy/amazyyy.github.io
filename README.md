@@ -1,0 +1,1 @@
+# amazyyy.github.io
